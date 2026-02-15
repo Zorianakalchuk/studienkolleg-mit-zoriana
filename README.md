@@ -1,1 +1,1 @@
-# studienkolleg-mit-zoriana
+# studienkolleg-mit-zorianano
